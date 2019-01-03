@@ -10,7 +10,7 @@ This document only applies to me and not associated to any team that i currently
 
 **About Me**
 ---
-In case your are curious, my [MBTI personality is INFJ-A](https://www.16personalities.com/infj-personality). I highly suggest you to take that personality assessment so you know yourself better, and don't forget to share it to me so i can know you better as well. 
+In case you are curious, my [MBTI personality is INFJ-A](https://www.16personalities.com/infj-personality). I highly suggest you to take that personality assessment so you know yourself better, and don't forget to share it to me so i can know you better as well. 
 
 Most of my day is spent collecting, filtering and sharing context/information from across other projects, domains, people, and product lines. I'll try to push information to you as much as I can but feel free to ask about anything else. 
 
@@ -26,9 +26,8 @@ I always believe that people is the top ingredient for successfulness of the com
 *   **Transparency** \
 No company will be able to require me to lie to you and it could never happen as would not abide that thing. Expect that i will always say the truth to you, but there will be times when company require me to not tell something before a certain date ( e.g. New Title Appointment to certain person, strategic-position person whos going to leave ) \
 
-*   **No Leader is Always Right**
-
-    I believe that there is no silver-bullet for leadership, no one will ever 100% right. I expect that we will have continuous feedback on each other. It could be something that you think i screwed up, i could do better, or even things that you think i don't want to hear it - please, i do want to hear it. 
+*   **No Leader is Always Right** \
+I believe that there is no silver-bullet for leadership, no one will ever 100% right. I expect that we will have continuous feedback on each other. It could be something that you think i screwed up, i could do better, or even things that you think i don't want to hear it - please, i do want to hear it. 
 
 
 *   **Big Haters of "It will be done, when it's done"** \
