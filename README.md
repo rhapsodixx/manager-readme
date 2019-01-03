@@ -20,19 +20,19 @@ My availability might looks scary, most of the time you might find that i don't 
 
 **My Values & Philosophy**
 ---
-*   **People First \
-I always believe that people is the top ingredient for successfulness of the company. Having great people & great culture will end up with great products. My personal focus would be to optimize process and the way people works so they can be the best of what they can be. \
+*   **People First** \
+I always believe that people is the top ingredient for successfulness of the company. Having great people & great culture will end up with great products. My personal focus would be to optimize process and the way people works so they can be the best of what they can be.
 
 *   **Transparency** \
 No company will be able to require me to lie to you and it could never happen as would not abide that thing. Expect that i will always say the truth to you, but there will be times when company require me to not tell something before a certain date ( e.g. New Title Appointment to certain person, strategic-position person whos going to leave ) \
 
 *   **No Leader is Always Right**
 
-    I believe that there is no silver-bullet for leadership, no one will ever 100% right. I expect that we will have continuous feedback on each other. It could be something that you think i screwed up, i could do better, or even things that you think i don't want to hear it - please, i do want to hear it. \
+    I believe that there is no silver-bullet for leadership, no one will ever 100% right. I expect that we will have continuous feedback on each other. It could be something that you think i screwed up, i could do better, or even things that you think i don't want to hear it - please, i do want to hear it. 
 
 
 *   **Big Haters of "It will be done, when it's done"** \
-I will always try to give dates and ETA in my every actions and i expect you will do the same. If you don't know when it's done, then tell me honestly so we can figure it out together. \
+I will always try to give dates and ETA in my every actions and i expect you will do the same. If you don't know when it's done, then tell me honestly so we can figure it out together. 
 
 *   **Ownership** \
 I always own everything that assigned to me as my own thing by understanding on why i need to do it and why i need to do it by <duedate_here>. This thinking helps me to bring the best out of me. If you don't know why you are doing particular task please ask, least thing i want is you are doing something just because i said so.
