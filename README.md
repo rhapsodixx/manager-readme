@@ -36,7 +36,7 @@ My calendar might look intimidating, but I am here for you. If you see a free sl
 *   **Ownership**
     I treat every assigned task as my own by understanding the "why" behind it and the importance of the deadline. This mindset helps me do my best work. If you don't know why you're doing a task, please ask. The last thing I want is for you to do something just because I said so.
 
-*   **Husnuzan (Positive Assumption)**
+*   **[Husnuzan](http://www.ijhssnet.com/journals/Vol_4_No_6_April_2014/10.pdf) (Positive Assumption)**
     I give my trust from day one. To lead effectively, I choose to put a positive spin on everything that happens. This helps me find the silver lining, maintain psychological safety, and focus on learning from mistakes rather than assigning blame.
 
 ---
@@ -48,7 +48,7 @@ Please be proactive. If you sense something is off—within your team, another t
 
 Keep sharpening your saw. Focus on software engineering fundamentals and stay curious about new tech. Trends change, but solid fundamentals make it easy to catch up on anything.
 
-Build your network with [Habluminannas](http://hrmars.com/hrmars_papers/The_Application_of_Habluminallah_and_Habluminannas_in_the_Work_Motivation_of_the_Management.pdf) in mind. Engaging with the community and meeting new peers will broaden your perspective. I’m happy to help you find groups that fit your career goals.
+Build your network with **[Habluminannas](http://hrmars.com/hrmars_papers/The_Application_of_Habluminallah_and_Habluminannas_in_the_Work_Motivation_of_the_Management.pdf)** in mind. Engaging with the community and meeting new peers will broaden your perspective. I’m happy to help you find groups that fit your career goals.
 
 ---
 
